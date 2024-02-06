@@ -3,7 +3,5 @@
 
 - 🌱 I’m currently studying Information Technology;
 - 📫 How to reach me: gleicymara.df@gmail.com
-- 😄 Pronouns: she/her
-
 
 
